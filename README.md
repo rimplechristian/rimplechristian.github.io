@@ -1,1 +1,0 @@
-# rimplechristian.github.io
